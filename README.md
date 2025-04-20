@@ -1,5 +1,11 @@
-## Hi there 👋
+#🌺farzanaachal🌺
+🌸 Hi there! I’m an aspiring law student who’s just a little curious about code 👩🏻‍⚖️💻
+I studied Political Science & Sociology 🎓 and love exploring how tech & justice can connect.
 
+🌼 Currently learning: Anything that helps make legal stuff more human-friendly
+📚 I love reading, visiting museums 🖼️, and taking too many pictures 📷 of flowers, cats, and nice landscapes!
+
+🐣 Still a beginner — but excited to learn, build, and share 🌟
 <!--
 **farzanaachal/farzanaachal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
