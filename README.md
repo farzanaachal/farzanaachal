@@ -1,4 +1,4 @@
-🌸 Hi there! I’m an aspiring law student who’s just a little curious about code 👩🏻‍⚖️💻  
+🌸 Hi there!! I’m an aspiring law student who’s just a little curious about code 👩🏻‍⚖️💻  
 I studied Political Science & Sociology 🎓 and love exploring how tech & justice can connect.
 
 🌼 Currently learning: anything that helps make legal stuff more human-friendly  
